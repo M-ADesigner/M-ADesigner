@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **andresavilamf@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: +569 30525152</h3>
 <p align="left">
 </p>
 
