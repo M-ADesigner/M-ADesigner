@@ -9,7 +9,6 @@
 
 - 👨‍💻 All of my projects are available at [https://maicoldesigner.github.io/Portafolio.net/](https://maicoldesigner.github.io/Portafolio.net/)
 
-- 💬 Ask me about **react**
 
 - 📫 How to reach me **andresavilamf@gmail.com**
 
